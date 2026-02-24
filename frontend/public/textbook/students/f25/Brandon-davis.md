@@ -1,4 +1,4 @@
-Hi!  I'm Ben.  I am taking this course in Fall 2025.
+Hi!  I'm Brandon.  I am taking this course in Fall 2025.
 
 As required, I'm posting my midterm here!
 
